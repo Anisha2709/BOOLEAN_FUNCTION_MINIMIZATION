@@ -75,7 +75,6 @@ f2
 f1
 ![WhatsApp Image 2025-04-23 at 14 53 04_c5cfe925](https://github.com/user-attachments/assets/4a707cc2-5202-4fa9-8db0-f567cdf2118d)
 
-f2
 ![image](https://github.com/user-attachments/assets/6e9f86d6-7ec9-4f4f-85ad-3b9c6e46f130)
 
 
